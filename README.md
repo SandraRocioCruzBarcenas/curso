@@ -10,3 +10,9 @@ HOliiiiii!!!!!
 
 Atún dolores!!!!!... atún dolores :DDDD
 
+Y como diceeeeee!!!!!!!!!!!!!! 
+
+ATUUUUUUUÚUUUNNNNNNNNN DOLOOOOOOOOOORRRREEEEEESSSSSS!!!!!!!!!!!!!!!!!!!!!
+AAAAAAAAAAAAATTTTTTTUUUUUUUUUUNNNNNNNNNNN DDDDDDDDDOOOOOOOOLLLLLLLLLLLLLOORRRRRRRESSSS!!
+
+:3  BD  E) °D <- carita del tuertito    y    |D <- carita de ciclope 
