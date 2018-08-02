@@ -18,3 +18,6 @@ AAAAAAAAAAAAATTTTTTTUUUUUUUUUUNNNNNNNNNNN DDDDDDDDDOOOOOOOOLLLLLLLLLLLLLOORRRRRR
 :3  BD  E) °D <- carita del tuertito    y    |D <- carita de ciclope 
 
 falta esta carita @.@ <- LOCO 
+
+
+ya no tengo mas caritas 
